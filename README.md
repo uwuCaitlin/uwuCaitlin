@@ -52,13 +52,13 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 ## Our Clients' Work! We like to keep track of all the work that we have done in the past, and we often update it here! 
 
-> https://youtu.be/m-KpwluFsiM-- A video called "Skywars is dumb" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
+> https://youtu.be/m-KpwluFsiM --- A video called "Skywars is dumb" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
 
 > https://www.youtube.com/watch?v=8tJdbsdM5bk --- A video called "Shaders = Skill" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
 
 > https://www.youtube.com/watch?v=I77Pr27-e7U --- A video called "so i fought notch.." We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
 
-> https://www.youtube.com/watch?v=itEbw5ehLbk--- A video called "All Pixelmon breeding items explained in under 60 seconds" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
+> https://www.youtube.com/watch?v=itEbw5ehLbk --- A video called "All Pixelmon breeding items explained in under 60 seconds" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
 
 ### Why us over others?
 
@@ -78,11 +78,11 @@ We accept PayPal payments from friends and family! This helps us! 
 
 The editors themselves are often found playing games such as Minecraft and Valorant, as well as working on their projects. This is because we enjoy editing as much for ourselves as we do for others. A bit like how chefs cook for others and themselves, we do it with editing too.
 
-> Caitlin's about me in under 50 words. Caitlin has many hobbies, such as swimming and going on dates, often making her boyfriend spend money on her by buying her plushies, sweets, and cuddling. On her off days, she likes to sit down and have a movie night. Some of her favourite shows are Doctor Who, Pokemon, and Tokyo Goul.
+Caitlin's about me in under 50 words. Caitlin has many hobbies, such as swimming and going on dates, often making her boyfriend spend money on her by buying her plushies, sweets, and cuddling. On her off days, she likes to sit down and have a movie night. Some of her favourite shows are Doctor Who, Pokemon, and Tokyo Goul.
 
-> Matthew spends most of his days sleeping when he isn't editing. He often goes out with his family and goes on long walks. He enjoys editing because it allows him to be absorbed into his own world, and he doesn't have to worry about what is going on around him.
+Matthew spends most of his days sleeping when he isn't editing. He often goes out with his family and goes on long walks. He enjoys editing because it allows him to be absorbed into his own world, and he doesn't have to worry about what is going on around him.
 
-> Caitlin and Matthew have known each other and been friends with each other since they were both 14. We are now 18 and going on to our second year of college, and we want to continue learning about both editing and photography to one day do it as a job.
+Caitlin and Matthew have known each other and been friends with each other since they were both 14. We are now 18 and going on to our second year of college, and we want to continue learning about both editing and photography to one day do it as a job.
 
 ![J _M _Flagg,_I_Want_You_for_U S _Army_poster_(1917)_1634526671](https://user-images.githubusercontent.com/108618984/177056132-73c97852-1404-419f-9e28-c7e7403e0dce.png)
 
