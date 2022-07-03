@@ -78,7 +78,7 @@ The editors themselves are often found playing games such as Minecraft and Valor
 > Caitlin and Matthew have known each other and been friends with each other since they were both 14. We are now 18 and going on to our second year of college, and we want to continue learning about both editing and photography to one day do it as a job.
 
 
-![J _M _Flagg,_I_Want_You_for_U S _Army_poster_(1917)_1634526671](https://user-images.githubusercontent.com/108618984/177056066-4f6d6dff-1c5e-42cb-93c1-a8996b3633a9.png)
+![J _M _Flagg,_I_Want_You_for_U S _Army_poster_(1917)_1634526671](https://user-images.githubusercontent.com/108618984/177056132-73c97852-1404-419f-9e28-c7e7403e0dce.png)
 
 
 ![uwucait](https://user-images.githubusercontent.com/108618984/177053391-db48beb2-e4de-44d2-8c35-3dfd6adb7396.png)
