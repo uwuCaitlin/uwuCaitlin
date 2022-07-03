@@ -67,7 +67,7 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 We accept PayPal payments from friends and family!This helps us! 
 
-## Learn about the editors'
+## Learn about the editors
 
 The editors themselves are often found playing games such as Minecraft and Valorant, as well as working on their projects. This is because we enjoy editing as much for ourselves as we do for others. A bit like how chefs cook for others and themselves, we do it with editing too.
 
