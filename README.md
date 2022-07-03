@@ -2,7 +2,8 @@
 
 _The Video Editing Service for You_
 
-## Caitlin's Video Editing Service
+## Caitlin's Video Editing Service!
+
 
 Caitlin's Video Editing Service is a relatively _new_ business, originating at the beginning of 2022. We may be a new business, but that doesn't stop us from having we will have the experience necessary to be ready for you to have the perfect video for you.
 
@@ -75,3 +76,6 @@ The editors themselves are often found playing games such as Minecraft and Valor
 > uwuCex spends most of his days sleeping when he isn't editing. He often goes out with his family and goes on long walks. He enjoys editing because it allows him to be absorbed into his own world, and he doesn't have to worry about what is going on around him.
 
 > Caitlin and uwuCex have known each other and been friends with each other since they were both 14. We are now 18 and going on to our second year of college, and we want to continue learning about both editing and photography to one day do it as a job.
+
+
+![uwucait](https://user-images.githubusercontent.com/108618984/177053391-db48beb2-e4de-44d2-8c35-3dfd6adb7396.png)
