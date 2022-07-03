@@ -4,7 +4,6 @@ _The Video Editing Service for You_
 
 ## Caitlin's Video Editing Service!
 
-
 Caitlin's Video Editing Service is a relatively _new_ business, originating at the beginning of 2022. We may be a new business, but that doesn't stop us from having we will have the experience necessary to be ready for you to have the perfect video for you.
 
 ### Our previous work
@@ -21,11 +20,11 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 * How many are there in our team?
 
-> There are two of us, Caitlin and Matthew! We have known each other for over 2 years now and have split our projects in between us so we can deliver on time and when you need it the most.
+> There are two of us, Caitlin and Matthew! We've known each other for over two years and have divided our projects so that we can deliver on time and when you need it the most.
 
 * What are your prices?
 
-> It really depends on how long the video is, how many minutes it is, and how long you will need it for! But the basic prices are as follows: Around 5 minutes of footage is around 15 USD. A maximum length video of up to 15 minutes costs 36 USD. If you need something longer than this, we can discuss it!
+> It really depends on how long the video is, how many minutes it is, and how long you will need it for! But the basic prices are as follows: Around 5 minutes of footage is around 15 USD. A maximum video length of up to 15 minutes costs 36 USD. If you need something longer than this, we can discuss it!
 
 * Where do I order from you?
 
@@ -37,7 +36,7 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 * Why do we use GitHub as our portfolio? 
 
-> We use Github as our portoflio because it's easy, free and available to everyone. We have in the past had a website made up with examples of all our previous work with an explanation of what went into it all but we decided to scrap that and work with GitHub. It isn't slow, it is easy to use and get around as well as we can update it whenever we need to with any issues or any work we have done
+> We use Github as our portoflio because it's easy, free, and available to everyone. We have in the past had a website made up with examples of all our previous work with an explanation of what went into it all, but we decided to scrap that and work with GitHub. It isn't slow, it is easy to use and get around, as well as we can update it whenever we need to with any issues or any work we have done.
 
 * What quality are our videos?
 
@@ -65,7 +64,7 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 ## How do I make a payment?
 
-We accept PayPal payments from friends and family!This helps us! 
+We accept PayPal payments from friends and family! This helps us! 
 
 ## Learn about the editors
 
@@ -77,9 +76,8 @@ The editors themselves are often found playing games such as Minecraft and Valor
 
 > Caitlin and Matthew have known each other and been friends with each other since they were both 14. We are now 18 and going on to our second year of college, and we want to continue learning about both editing and photography to one day do it as a job.
 
-
 ![J _M _Flagg,_I_Want_You_for_U S _Army_poster_(1917)_1634526671](https://user-images.githubusercontent.com/108618984/177056132-73c97852-1404-419f-9e28-c7e7403e0dce.png)
 
-
 ![uwucait](https://user-images.githubusercontent.com/108618984/177053391-db48beb2-e4de-44d2-8c35-3dfd6adb7396.png)
+
 > Thank you to boon for this image.
