@@ -47,11 +47,11 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 > https://youtu.be/m-KpwluFsiM-- A video called "Skywars is dumb" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
 
-> https://www.youtube.com/watch?v=8tJdbsdM5bk --- A video called "Skywars is dumb" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
+> https://www.youtube.com/watch?v=8tJdbsdM5bk --- A video called "Shaders = Skill" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
 
-> https://www.youtube.com/watch?v=I77Pr27-e7U --- A video called "Skywars is dumb" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
+> https://www.youtube.com/watch?v=I77Pr27-e7U --- A video called "so i fought notch.." We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
 
-> https://www.youtube.com/watch?v=itEbw5ehLbk--- A video called "Skywars is dumb" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
+> https://www.youtube.com/watch?v=itEbw5ehLbk--- A video called "All Pixelmon breeding items explained in under 60 seconds" We did all the editing in this video as a team. The thumbnail was made by "boon" himself, though.
 
 ### Why us over others?
 
