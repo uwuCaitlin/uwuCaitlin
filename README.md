@@ -36,9 +36,13 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 > All the money goes back into the editing business. We want all of this to improve. The majority of the money currently goes into paying for subscriptions like Adobe, as well as improving our equipment!
 
+* Why do we use GitHub as our portfolio? 
+
+> We use Github as our portoflio because it's easy, free, and available to everyone. We have in the past had a website made up with examples of all our previous work with explanation with what into it all -- but we decided to scarp that and work with github it isn't slow is easy to use and get around as well as we can update it whenever we need to with any issues  
+
 ## Our Clients' Work! We like to keep track of all the work that we have done in the past, and we often update it here! 
 
-> https://youtu.be/m-KpwluFsiM -- A video called "skywars is dumb" - We did all the editing in this video as a team. The thumbnail was made by "boon" himself, tho.
+> https://youtu.be/m-KpwluFsiM -- A video called "skywars is dumb"- We did all the editing in this video as a team. The thumbnail was made by "boon" himself, tho.
 
 > https://www.youtube.com/watch?v=8tJdbsdM5bk -- A video called "skywars is dumb"- We did all the editing in this video as a team. The thumbnail was made by "boon" himself, tho.
 
