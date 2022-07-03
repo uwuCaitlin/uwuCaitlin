@@ -1,4 +1,4 @@
-# uwuCait's Video Editing Service 
+# Cait's Video Editing Service 
 
 _The Video Editing Service for You_
 
