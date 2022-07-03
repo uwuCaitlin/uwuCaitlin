@@ -37,3 +37,6 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 > We have the education - as it was just a hobby we decided to we wanted to learn more Both Me and uwuCex have both gone to college for editing as well as photography both learning about the different shots as well as how we can use those shots to our advantage to tell a story 
 
 > We are willing to learn and take the time - not happy with how we did something - want us to change it well we can! 
+
+## How do i pay?!
+We accept payment from paypal using Friends and Family! This helps us! 
