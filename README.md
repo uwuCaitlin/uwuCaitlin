@@ -21,7 +21,7 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 * How many are there in our team?
 
-> There are two of us, Caitlin and uwuCex! We have known each other for over 2 years now and have split our projects in between us so we can deliver on time and when you need it the most.
+> There are two of us, Caitlin and Matthew! We have known each other for over 2 years now and have split our projects in between us so we can deliver on time and when you need it the most.
 
 * What are your prices?
 
@@ -59,7 +59,7 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 > We have the skills. As I mentioned above, we first started video editing in 2020 as a hobby, but we have developed it from just a hobby into becoming something more of a job. We, like you, want to use our skills and our work to one day make enough money from it to live off of it!
 
-> We have the education; as it was just a hobby, we decided to learn more. Both me and uwuCex have both gone to college for editing as well as photography, learning about the different shots as well as how we can use those shots to our advantage to tell a story 
+> We have the education; as it was just a hobby, we decided to learn more. Both me and Matthew have both gone to college for editing as well as photography, learning about the different shots as well as how we can use those shots to our advantage to tell a story 
 
 > We are willing to learn and take the time—not happy with how we did something—want to change it as well as we can! 
 
@@ -73,9 +73,9 @@ The editors themselves are often found playing games such as Minecraft and Valor
 
 > Caitlin's about me in under 50 words. Caitlin has many hobbies, such as swimming and going on dates, often making her boyfriend spend money on her by buying her plushies, sweets, and cuddling. On her off days, she likes to sit down and have a movie night. Some of her favourite shows are Doctor Who, Pokemon, and Tokyo Goul.
 
-> uwuCex spends most of his days sleeping when he isn't editing. He often goes out with his family and goes on long walks. He enjoys editing because it allows him to be absorbed into his own world, and he doesn't have to worry about what is going on around him.
+> Matthew spends most of his days sleeping when he isn't editing. He often goes out with his family and goes on long walks. He enjoys editing because it allows him to be absorbed into his own world, and he doesn't have to worry about what is going on around him.
 
-> Caitlin and uwuCex have known each other and been friends with each other since they were both 14. We are now 18 and going on to our second year of college, and we want to continue learning about both editing and photography to one day do it as a job.
+> Caitlin and Matthew have known each other and been friends with each other since they were both 14. We are now 18 and going on to our second year of college, and we want to continue learning about both editing and photography to one day do it as a job.
 
 
 ![uwucait](https://user-images.githubusercontent.com/108618984/177053391-db48beb2-e4de-44d2-8c35-3dfd6adb7396.png)
