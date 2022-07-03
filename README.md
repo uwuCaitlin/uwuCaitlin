@@ -26,6 +26,14 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 > It really depends on how long the video is, how many minutes it is, and how long you will need it for! But the basic prices are as follows: Around 5 minutes of footage is around 15 USD. A maximum video length of up to 15 minutes costs 36 USD. If you need something longer than this, we can discuss it!
 
+> Normally I set the orders into 3 tiers depending on the tier you want 
+
+> Level 1 Edit - I will edit, cut, arrange, do some basic transition, and can do other things too which depends on your project type.
+
+> Level 2 Edit - I will arrange, transition, effects, color correct.
+
+> Level 3 Edit (god-tier editing) - I will try my best to meet your expectations and includes every aspect.
+
 * Where do I order from you?
 
 > Feel free to contact me here, Caitlin-#0149, with all of the videos in a Google Drive-so we can talk about what you would like to see in your video and if there are any specifics we as a team can add! 
