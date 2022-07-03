@@ -2,7 +2,7 @@
 _The Video Editing Service for you_ 
 
 ## Caitlins Video Editing Service. 
-Caitlins Video editing Service is a realaitvely _new_ bussiness originating in the beggining of 2022 - We may be a new bussiness but that doesn't stop us from having, 
+Caitlins Video editing Service is a relatively _new_ bussiness originating in the beggining of 2022 - We may be a new bussiness but that doesn't stop us from having, 
 the exerience neccesary to be ready for you to have the Video perfect for you 
 
 ### Our past work! 
