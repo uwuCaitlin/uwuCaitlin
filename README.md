@@ -37,7 +37,7 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 * Why do we use GitHub as our portfolio? 
 
-> We use Github as our portoflio because it's easy, free, and available to everyone. We have in the past had a website made up with examples of all our previous work with an explanation of what went into it all--but we decided to scrap that and work with GitHub. It isn't slow, it is easy to use and get around, as well as we can update it whenever we need to with any issues.
+> We use Github as our portoflio because it's easy, free and available to everyone. We have in the past had a website made up with examples of all our previous work with an explanation of what went into it all but we decided to scrap that and work with GitHub. It isn't slow, it is easy to use and get around as well as we can update it whenever we need to with any issues or any work we have done
 
 * What quality are our videos?
 
