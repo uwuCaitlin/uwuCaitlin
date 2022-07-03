@@ -28,11 +28,11 @@ It can be found here! https://www.youtube.com/channel/UCiYh9QUh7Aq19tUNPfNPujA
 
 > Normally I set the orders into 3 tiers depending on the tier you want 
 
-> Level 1 Edit - I will edit, cut, arrange, do some basic transition, and can do other things too which depends on your project type.
+>Level 1 Edit: I will edit, cut, arrange, do some basic transitions, and can do other things too, which depends on your project type.
 
-> Level 2 Edit - I will arrange, transition, effects, color correct.
+>Level 2 Edit: I'll arrange, transition, add effects, and colour correct everything.
 
-> Level 3 Edit (god-tier editing) - I will try my best to meet your expectations and includes every aspect.
+>Level 3 Edit (god-tier editing): I will try my best to meet your expectations and include every aspect.
 
 * Where do I order from you?
 
